@@ -1,5 +1,4 @@
-What can i say, i like nutella and i like pizza!
-you have no valid reason to hate unless youve tried it :)
+Tries to mod Terraria but fails horribly.
 
 <!---
 NutellaOnPizza/NutellaOnPizza is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
